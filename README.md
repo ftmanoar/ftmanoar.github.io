@@ -1,1 +1,1 @@
-# ftmanoar.github.io
+# [Samonta Seconday School](https://sss.edu.bd)
